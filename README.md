@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Balamuralikrishna2004
+- 👋 Hi, I’m Balamuralikrishna
 - 👀 I’m interested in ... any developer 
 - 🌱 I’m currently studying 
 - 💞️ I’m looking to collaborate on graphic designer 
